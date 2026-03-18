@@ -1,2 +1,2 @@
-# pradhumnamalakar.github.io
+# shikharpatwa.github.io
 Personal Portfolio
